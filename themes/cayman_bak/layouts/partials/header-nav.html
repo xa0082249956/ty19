@@ -1,0 +1,8 @@
+<section class="page-header">
+  <h1 class="project-name">
+    {{ $.Site.Params.project_name | default "project_name goes here" | markdownify }}
+  </h1>
+  <h2 class="project-tagline">
+    {{ $.Site.Params.project_tagline | default "project_tagline goes here" | markdownify }}
+  </h2>
+</section>
