@@ -28,6 +28,6 @@ title: 2019 铁一后高考咨询群
 |中南大学|[555050387](https://jq.qq.com/?_wv=1027&k=5Qku0Oc)|西铁·中南|
 |中山大学|[954677391](https://jq.qq.com/?_wv=1027&k=5Z2Ckzj)|2019， 中大等我|
 
-需要买电脑？浏览 [【618前瞻】笔记本电脑选购指南](https://mp.weixin.qq.com/s?timestamp=1560238321&src=3&ver=1&signature=vbiSKxvDHbOcfT08T0AFx6bGSN3*7onmDFREGhZl6ktU2Q6Xf9hz2t*2lbAdjgF23LMLAHuM3c3DPWHna9SM06pUQjGybEhCOlBj222ph9dZIsXI1XpNA4toj21FC6A8ju*AtQdgXrNfZncO6h6K8J8Fa2KOX20wy94qQByOFhc=) 或加群 TYPDA [661905435](https://jq.qq.com/?_wv=1027&k=5IjlJGT) 讨论（限学生）。
+需要买电脑？浏览 [【小白必看】笔记本电脑选购指南](https://mp.weixin.qq.com/s?timestamp=1561130499&src=3&ver=1&signature=kncrAIteJm3KAgjYeTLi79fI2wH3QRoN7y6ToIQqNcwhClDOP3hbRSbKFeJhfJFA6*1-pWWEeMT-P8ekt*KOZZy59K8qttJpr7PdJED-hlMCceQWmry5yjehH8Rf0hBlAWsqmVNc2CNYfi7EFQ29UdeLL7H9vCneyzEm03Sjh9o=) 或加群 TYPDA [661905435](https://jq.qq.com/?_wv=1027&k=5IjlJGT) 讨论（限学生）。
 
 <script src='/js/filt.min.js' async='true'></script>
