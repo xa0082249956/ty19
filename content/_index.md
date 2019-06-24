@@ -20,6 +20,7 @@ title: 2019 铁一后高考咨询群
 |华中科技大学|[868231287](https://jq.qq.com/?_wv=1027&k=5LxW1UX)|华中科技大学2019官方迎新群|
 |华中科技大学：新闻系|[821313549](https://jq.qq.com/?_wv=1027&k=5iv6cE5)|19华中大新闻报考咨询群|
 |吉林大学|[181805012](https://jq.qq.com/?_wv=1027&k=5HZ9ZEW)|铁一吉大答疑群18-19|
+|南方科技大学|[814746042](https://jq.qq.com/?_wv=1027&k=5s8OhXU)|南科大铁一大手牵小手|
 |南京大学 | [486326259](https://jq.qq.com/?_wv=1027&k=5hfwMmk)| 铁一2019南大咨询群 |
 |南京理工大学|[点我加群](https://jq.qq.com/?_wv=1027&k=5XBhQjg)|铁一 in 南理|
 |南开大学|[478177816](https://jq.qq.com/?_wv=1027&k=5qO4p7s)|心比天大 南以离开|
@@ -33,12 +34,13 @@ title: 2019 铁一后高考咨询群
 |西安交通大学：越杰计划| [933258747](https://jq.qq.com/?_wv=1027&k=58umFkk)| 越杰19招生咨询群 |
 |浙江大学 | [949316766](https://jq.qq.com/?_wv=1027&k=52cbkp4)| 浙大2019铁一回访咨询 |
 |中国科学技术大学|[718091713](https://jq.qq.com/?_wv=1027&k=5MkQ2E0)|USTC2019陕招咨询|
+|中国科学院大学|[731694762](https://jq.qq.com/?_wv=1027&k=5imcUdI)|2019国科大铁一咨询群|
 |中国人民大学|[961142451](https://jq.qq.com/?_wv=1027&k=5nFC7C3)|情系铁一人大宣讲欢迎小鲜肉咨询群|
 |中南大学|[555050387](https://jq.qq.com/?_wv=1027&k=5Qku0Oc)|西铁·中南|
 |中山大学|[954677391](https://jq.qq.com/?_wv=1027&k=5Z2Ckzj)|2019， 中大等我|
 |中央财经大学|[736631023](https://jq.qq.com/?_wv=1027&k=5NGeJjf)|铁一央财群众基础培养|
 |中央民族大学|[654695613](https://jq.qq.com/?_wv=1027&k=5rJ9eD0)|中央民族大学咨询群|
 
-需要买电脑？浏览 [【小白必看】笔记本电脑选购指南](https://mp.weixin.qq.com/s?timestamp=1561130499&src=3&ver=1&signature=kncrAIteJm3KAgjYeTLi79fI2wH3QRoN7y6ToIQqNcwhClDOP3hbRSbKFeJhfJFA6*1-pWWEeMT-P8ekt*KOZZy59K8qttJpr7PdJED-hlMCceQWmry5yjehH8Rf0hBlAWsqmVNc2CNYfi7EFQ29UdeLL7H9vCneyzEm03Sjh9o=) 或加群 TYPDA [661905435](https://jq.qq.com/?_wv=1027&k=5IjlJGT) 讨论（限学生）。
+需要买电脑？浏览 [【小白必看】笔记本电脑选购指南](https://mp.weixin.qq.com/s?src=11&timestamp=1561358495&ver=1687&signature=a0OUx8WP2cY1fRBemAFzqK9VmEvUh8pADoQvQS3r-z0CTaAkEYSB8Z7GzDGC6PdwaWABr5swJpwcM0BQVd-MbWlplH850VefIbwU9UuVhttgePaIeARkrlVgxP4RMKut&new=1) 或加群 TYPDA [661905435](https://jq.qq.com/?_wv=1027&k=5IjlJGT) 讨论（限学生）。
 
 <script src='/js/filt.min.js' async='true'></script>
