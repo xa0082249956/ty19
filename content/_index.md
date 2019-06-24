@@ -31,6 +31,8 @@ title: 2019 铁一后高考咨询群
 |中国人民大学|[961142451](https://jq.qq.com/?_wv=1027&k=5nFC7C3)|情系铁一人大宣讲欢迎小鲜肉咨询群|
 |中南大学|[555050387](https://jq.qq.com/?_wv=1027&k=5Qku0Oc)|西铁·中南|
 |中山大学|[954677391](https://jq.qq.com/?_wv=1027&k=5Z2Ckzj)|2019， 中大等我|
+|中央财经大学|[736631023](https://jq.qq.com/?_wv=1027&k=5NGeJjf)|铁一央财群众基础培养|
+|中央民族大学|[654695613](https://jq.qq.com/?_wv=1027&k=5rJ9eD0)|中央民族大学咨询群|
 
 需要买电脑？浏览 [【小白必看】笔记本电脑选购指南](https://mp.weixin.qq.com/s?timestamp=1561130499&src=3&ver=1&signature=kncrAIteJm3KAgjYeTLi79fI2wH3QRoN7y6ToIQqNcwhClDOP3hbRSbKFeJhfJFA6*1-pWWEeMT-P8ekt*KOZZy59K8qttJpr7PdJED-hlMCceQWmry5yjehH8Rf0hBlAWsqmVNc2CNYfi7EFQ29UdeLL7H9vCneyzEm03Sjh9o=) 或加群 TYPDA [661905435](https://jq.qq.com/?_wv=1027&k=5IjlJGT) 讨论（限学生）。
 
