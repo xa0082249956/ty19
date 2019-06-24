@@ -24,7 +24,7 @@ title: 2019 铁一后高考咨询群
 |南京大学 | [486326259](https://jq.qq.com/?_wv=1027&k=5hfwMmk)| 铁一2019南大咨询群 |
 |南京理工大学|[点我加群](https://jq.qq.com/?_wv=1027&k=5XBhQjg)|铁一 in 南理|
 |南开大学|[478177816](https://jq.qq.com/?_wv=1027&k=5qO4p7s)|心比天大 南以离开|
-|清华大学 | [937927435](https://jq.qq.com/?_wv=1027&k=560aYuX)| THU咨询群 |
+|清华大学 | [825683210](https://jq.qq.com/?_wv=1027&k=5f1dFUk)|19TY-THU咨询群 |
 |上海交通大学|[838965235](https://jq.qq.com/?_wv=1027&k=501ZBt2)|19届の铁一上交咨询群|
 |天津大学|[789183663](https://jq.qq.com/?_wv=1027&k=5GUdaIM)|铁一天大19届交流(水)群|
 |同济大学| [960718970](https://jq.qq.com/?_wv=1027&k=5tUMGbu)| 济遇铁一2019 |家长请 [加我](https://jq.qq.com/?_wv=1027&k=5u15Kh8)|
