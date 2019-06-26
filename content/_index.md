@@ -52,6 +52,6 @@ title: 2019 铁一后高考咨询群
 |中央财经大学|[736631023](https://jq.qq.com/?_wv=1027&k=5NGeJjf)|铁一央财群众基础培养|
 |中央民族大学|[654695613](https://jq.qq.com/?_wv=1027&k=5rJ9eD0)|中央民族大学咨询群|
 
-需要买电脑？浏览 [【小白必看】笔记本电脑选购指南](https://mp.weixin.qq.com/s?src=11&timestamp=1561358495&ver=1687&signature=a0OUx8WP2cY1fRBemAFzqK9VmEvUh8pADoQvQS3r-z0CTaAkEYSB8Z7GzDGC6PdwaWABr5swJpwcM0BQVd-MbWlplH850VefIbwU9UuVhttgePaIeARkrlVgxP4RMKut&new=1) 或加群 TYPDA [661905435](https://jq.qq.com/?_wv=1027&k=5IjlJGT) 讨论（限学生）。
+需要买电脑？浏览 [笔吧评测室](https://weixin.sogou.com/weixinwap?query=%E7%AC%94%E5%90%A7%E8%AF%84%E6%B5%8B%E5%AE%A4&s=%E6%90%9C%E7%B4%A2) 或加群 TYPDA [661905435](https://jq.qq.com/?_wv=1027&k=5IjlJGT) 讨论（限学生）。
 
 <script src='/js/filt.min.js' async='true'></script>
